@@ -1,0 +1,1 @@
+# CG-CUDO-MINER-SOFTWARE-Pro-Version-V2.2-lifetime-license-2024
